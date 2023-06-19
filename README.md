@@ -1,0 +1,6 @@
+- 👋 Hi, I'm @Daryl-OB
+- 👀 I'm interested in web development.
+- 🌱 I'm currently pursuing a degree in software development.
+- 💞️ I am looking to collaborate in the creation of websites for companies or businesses.
+- 📞 Contact: +51 956467609
+- 📫 Email: daryloscco27@gmail.com
